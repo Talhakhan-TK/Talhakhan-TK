@@ -1,7 +1,7 @@
 - 👋 Hi, I’m @Talhakhan-TK
 - 🌱 I’m currently learning Generative AI
 - 🎓 MBA degree holder in the field of Supply Chain Management
-- 🧑‍💼 FMCG Experience - 6+ Years
+- 🧑‍💼 FMCG Experience - 7+ Years
 - 📫 You can reach me on my email talhakhan.tk951@gmail.com
   
 <!---
